@@ -14,9 +14,9 @@ Instructions in steps to make the brownies :
 
 7) Bake for 25-30 minutes for just under-done brownies (fudgier texture) or until the centre of the brownies no longer jiggles and is JUST set to the touch.
 
-OR 35-40 minutes if you like your brownies well set and firm.
+   OR 35-40 minutes if you like your brownies well set and firm.
 
-NOTE: Brownies will continue baking and set in the hot pan out of the oven. If testing with a toothpick, the toothpick should come out dirty for fudge-textured brownies.
+   NOTE: Brownies will continue baking and set in the hot pan out of the oven. If testing with a toothpick, the toothpick should come out dirty for fudge-textured brownies.
 
 8) After 15-20 minutes, carefully remove them out of the pan and allow to cool to room temperature before slicing into 16 brownies. They set while they cool.
 
